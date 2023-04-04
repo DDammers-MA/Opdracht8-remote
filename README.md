@@ -1,1 +1,1 @@
-## sup, wist jij dat ik 18 jaar ben
+## sup, wist jij dat ik op het mediacollage zit
